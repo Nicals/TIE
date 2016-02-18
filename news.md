@@ -1,1 +1,3 @@
-Bon alors quoi de neuf mon bon?
+Grave bien !
+
+Ca se passe bien avec les autochtones ?
